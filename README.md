@@ -5,8 +5,6 @@
 
 - 📫 How to reach me **jotaniyaneel07@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1HPKcwrqH5jv_fFa_lwZS1eew7_Iwg_c1/view](https://drive.google.com/file/d/1HPKcwrqH5jv_fFa_lwZS1eew7_Iwg_c1/view)
-
 - ⚡ Fun fact **I am Winner of one of the biggest Hackathon**
 
 <h3 align="left">Connect with me:</h3>
